@@ -1,2 +1,2 @@
 # harsh
-I am an avid learner with a passion for exploring a wide range of activities and experiences. While I know I may not be able to do everything, my goal in life is to try as much as possible and embrace every opportunity for growth and adventure.
+I am a curious and enthusiastic learner, driven by a desire to experience and accomplish as much as I can in life. Though I understand I can't do it all, I am determined to embrace every opportunity and dive into a variety of pursuits with an open mind and a sense of adventure.
